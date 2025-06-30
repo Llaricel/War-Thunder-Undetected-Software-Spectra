@@ -1,0 +1,1 @@
+# War-Thunder-Undetected-Software-Spectra
